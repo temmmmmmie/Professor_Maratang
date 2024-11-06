@@ -1,2 +1,2 @@
 # Professor_Maratang
-WTF
+☆교수님 마라탕 만들기☆
